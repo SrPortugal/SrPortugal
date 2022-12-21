@@ -7,7 +7,6 @@
   - 📫 Para contatos @SrPortugal, walissonportugal@gmail.com e walisson@rr64.net<br>
 </div>
 
-
 ##
 
 <div align="center" style="display: inline_block"><br>
